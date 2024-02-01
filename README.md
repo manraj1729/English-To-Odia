@@ -7,10 +7,10 @@ Kiye - who
 Aapn kiye kouchanti?
 
 Aap kon bol rahe ho?
-[23/01, 11:21 pm] Ayush Singh Dle: Padhuchi - padh Raha hu
+Padhuchi - padh Raha hu
 Padhuchu? - kya tu padh Raha hai?
-[23/01, 11:21 pm] Ayush Singh Dle: Kain padhuchu? - kyu padh Raha hai?
-[23/01, 11:21 pm] Ayush Singh Dle: Buluchi - ghum raha hu
+Kain padhuchu? - kyu padh Raha hai?
+ Buluchi - ghum raha hu
  Aji office Kain asinu?
 
 Aaj office kyu nai aayi/aaya
@@ -30,12 +30,12 @@ Khaiba hei galla- khana ho gaya
  Khelibaku jiba?
 
 Khelne ke liye chale?
-[23/01, 11:21 pm] Ayush Singh Dle: Kiye sikhouchi
-[23/01, 11:21 pm] Ayush Singh Dle: Kichi plan Kariba
+ Kiye sikhouchi
+ Kichi plan Kariba
 
 
 Kuch plan karenge
-[23/01, 11:21 pm] Ayush Singh Dle: Kisne sikhaya
+ Kisne sikhaya
 Bosija- baith Jaa
 Bosibi- baithunga
 Aao thike pore - thode dare baad
