@@ -57,3 +57,10 @@ Photo acchi hai kya?
  Bahariba? - niklenge
 Tune bike nai layi?
 Tu bike anilu ni ki?
+
+
+prakarti ra sundarjiya dekha jau chi 
+
+weather is beautiful 
+
+
